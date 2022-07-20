@@ -1,5 +1,5 @@
 ### Hi there 👋
-📫 How to contact me: 📮linyuhong.personal@outlook.com
+📫 How to contact me: 📮linyuhong.work@outlook.com
 
 🌱 My channel on [bilibili](https://space.bilibili.com/3605194)
 
