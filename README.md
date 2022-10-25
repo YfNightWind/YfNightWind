@@ -1,4 +1,4 @@
-### Hi there 👋
+<p align="center"><img width="30%" src="https://github.com/alansmathew/alansmathew/raw/master/lang.gif" alt="lang image here" /></p>
 📫 How to contact me: 📮linyuhong.work@outlook.com
 
 🌱 My channel on [bilibili](https://space.bilibili.com/3605194)
