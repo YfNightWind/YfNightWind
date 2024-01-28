@@ -2,8 +2,6 @@
 
 📫 How to contact me: 📮linyuhong.work@outlook.com
 
-🌱 My channel on [bilibili](https://space.bilibili.com/3605194)
-
 ❤️ Open Source
 <!--
 **YfNightWind/YfNightWind** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
